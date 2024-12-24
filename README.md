@@ -1,1 +1,0 @@
-# LocalEventsApp_UIUX-CaseStudy
